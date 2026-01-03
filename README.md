@@ -7,6 +7,9 @@ https://www.youtube.com/playlist?list=PLy4zsTUHwGJIATydhFeZa5pspLZR7yE__
 ```
 https://www.youtube.com/watch?v=9_rnXWCNVw4
 ```
+```
+https://www.youtube.com/playlist?list=PLy4zsTUHwGJIFuu6z7LFn28aObsl_yyKw
+```
 
 https://www.youtube.com/@griffpatch/playlists
 ---
