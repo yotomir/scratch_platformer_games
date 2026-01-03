@@ -12,3 +12,9 @@ https://www.youtube.com/@griffpatch/playlists
 ---
 https://youtube.com/@griffpatch/courses
 ---
+
+https://www.youtube.com/watch?v=2s27Y1k634Y
+=
+https://youtu.be/qo_E-WSy9Oc?si=Xk3UFaTCKz3ywuHD
+=
+
